@@ -1,1 +1,1 @@
-https://oluwatay123.github.io/mr-enoch-assignnment1/
+https://oluwatay123.github.io/assignment/
